@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @binksBrew.
-- 👀 I’m interested in Cybersecurity and Data Science.
+- 👀 I’m interested in Cybersecurity.
 - 🌱 I’m currently learning Btech In Computer Technology.
 - 📫 You can reach me via LinkedIn - www.linkedin.com/in/isha-sangpal-133593225
 - 😄 Pronouns: She/Her
